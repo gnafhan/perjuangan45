@@ -1,0 +1,6 @@
+WEB INI MERUPAKAN PERJUANGAN INDONESIA DI SIDANG BPUPKI-PROKLAMASI
+WEB INI MASIH SANGAT SEDERHANA
+
+
+Karena Tanpa JS maka web ini tidak maksimal
+Saya juga masih Belajar
